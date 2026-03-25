@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 I'm a new graduate from Computer Science with a strong interest in UX/UI design. Now I'm looking for a job in this position.
 
 * 🌍  I'm based in Phuket
-* 🖥️  See my portfolio at [this link](http://https://www.canva.com/design/DAGx1JYLOd4/0APeKgSjNHu949JE97wAZA/edit?utm_content=DAGx1JYLOd4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+* 🖥️  See my portfolio at [this link](https://drive.google.com/file/d/1xtya4IV1QReZlbfZVpUAHFz-DA4pBXfS/view?usp=drive_link)
 * ✉️  You can contact me at [nada.yadee29@gmail.com](mailto:naada.yadee29@gmail.com)
 
 <p align="left">
