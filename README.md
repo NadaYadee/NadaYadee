@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Nada Yadee
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Nada Yadee(Nada)
 ===================================================================================================================================
 
 I'm a new graduate from Computer Science with a strong interest in UX/UI design. Now I'm looking for a job in this position.
